@@ -1,6 +1,6 @@
 ### Hey!!
 I'm Veronica!!
-I like painting and drawing. :)<br>
+I like painting and drawing. Playing the piano and violin is also a hobby of mine. :)<br>
 In Computer Science this summer, I want to learn how to build websites and apps.<br>
 Computer Science is important to me because it'll definitely be helpful in a future career and is a useful skill to know.<br>
 ![Barbie Jeep Slayed](https://i5.walmartimages.com/asr/8654e989-085f-44f0-925d-a1076c2e90b6_1.06ac8cbccbdd7363755a6e66e448dc80.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
